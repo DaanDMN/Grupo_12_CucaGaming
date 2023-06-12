@@ -22,8 +22,10 @@ Kenneddy Zea, 25, vivo en Lanús Gerli.
 Kennedy, me gustaron los estilos de iconos:https://www.xgaming.com.ar/
 
 
-Mateo, me  gusta como orienta la usabilidad de la pagina al enfoque de gente que esta dirigida: https://compragamer.com/
+Mateo, me  gusta como orienta la usabilidad de la pagina al enfoque de gente que esta dirigida:https://compragamer.com/
 
 
 Daan, Me gusta el formato de los filtros(No es marketing para mi distribuidor oficial):https://www.fullh4rd.com.ar
 
+
+Gaston, Me gusta la estetica y la facilidad que ofrece la pagina para navegar en la misma:https://www.maximus.com.ar/ 
