@@ -1,5 +1,3 @@
-# moviesPractica
-Practica #1
 Mateo Mariotti 20, Ensenada
 Gaspar Borgogno 29, vivo en San Miguel
 Daniel Silva, 27, Monte Chingolo 
